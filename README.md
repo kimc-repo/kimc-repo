@@ -1,4 +1,4 @@
-# Kim Ng 👋
+# Kim Ng 👨🏻‍💻
 
 > 💻 IT Enthusiast | 📈 Data & Code Explorer | 🎨 UX Tinkerer
 
